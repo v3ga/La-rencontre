@@ -16,6 +16,7 @@
 * Social turkers — Lauren McCarthy — http://socialturkers.com/
 * Pplkpr — Kyle McDonald + Lauren McCarthy  — http://pplkpr.com/ 
 * Sharing faces — Kyle McDonald — https://vimeo.com/96549043
+* Gender swap — https://vimeo.com/84150219
 * Apparel — N O R M A L S — http://mixtur.es/apparel/
 
 ## Bibliographie
